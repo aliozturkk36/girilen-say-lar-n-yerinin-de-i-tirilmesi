@@ -1,0 +1,1 @@
+# girilen-say-lar-n-yerinin-de-i-tirilmesi
